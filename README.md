@@ -8,4 +8,5 @@
 - 🌱 I’m currently learning mechatronics and improving my C, C++ and Python skills. 
 - 👯 I’m looking to collaborate with the community in general.
 - 📫 The best way to contact me is by Email.
+- 💻 Advanced knowledge in computer hardware.
 - ⚡ Fun fact: I love Bingus meme.
