@@ -1,4 +1,4 @@
-## Hi there, i'm Nickolas J. 👋
+## Hi there, I'm Nickolas J. 👋
 
 #### Thanks for visiting my GitHub profile, so happy to have you here 😀
 
