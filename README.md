@@ -9,4 +9,4 @@
 - 💻 Advanced knowledge in computer hardware.
 - 👯 I’m looking to collaborate with the community in general.
 - 📫 The best way to contact me is by Email.
-- ⚡ Fun fact: I love Bingus meme.
+- ⚡ Fun fact: I love animals memes.
